@@ -1,2 +1,3 @@
 Nieco sem nacmaram :-)
 A este pridam...
+Aaa este jeden riadok
